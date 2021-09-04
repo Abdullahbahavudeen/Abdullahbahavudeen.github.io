@@ -1,7 +1,10 @@
-## Welcome to abdullah website
+## Hello,I'm abdullah.
+I'm a creator,educator,learn in online training courses
 
-iam abdullah 
-my coach is khalid 
+
+
+
+ 
 
 
 
